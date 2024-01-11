@@ -1,4 +1,5 @@
 Assignment 
+<img src="Screenshot (2).png">
 
 Mrs. Sunita Sharma need to engage in regular physical activity appropriate for her age and fitness level. This can include activities like walking, swimming or yoga. Physical activity can help improve cardiovascular health, maintain strength and flexibility, and boost overall well-being.
 
